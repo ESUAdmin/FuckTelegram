@@ -31,3 +31,7 @@ Criticism and controversy about Telegram
 你要隐私干什么？
 
 Telegram 已经成为一个”正常“（指死妈白左喉舌）的平台，无法为各位”赛博恐怖分子“提供避风港了，我们永远怀念它
+
+## pREMium
+
+oh shxt they have premium now lmao (the meaning of FREE has been re-defined due to financial hardship)

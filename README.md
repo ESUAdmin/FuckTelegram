@@ -40,3 +40,5 @@ wait, 这好事啊，因为一些政治碰瓷废物不能对你中共爹造成�
 ## pREMium
 
 oh shxt they have premium now lmao (the meaning of FREE has been re-defined due to financial hardship)
+
+send as channel is a P*MIUM feature n0w
